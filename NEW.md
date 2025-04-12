@@ -1,1 +1,0 @@
-"OTM more than OBM"
